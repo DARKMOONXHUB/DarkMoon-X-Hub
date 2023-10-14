@@ -1,2 +1,0 @@
-# DarkMoon-X-Hub
-Darkmoonx
